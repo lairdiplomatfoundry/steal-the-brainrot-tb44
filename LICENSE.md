@@ -1,4 +1,4 @@
-
+Experience steal the brainrot base like never before with steal the brainrot base Scripts smart, the #1 Script. Includes infinite resources and
 
 
 
